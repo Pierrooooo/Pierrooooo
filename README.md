@@ -1,5 +1,15 @@
 ### Hi there 👋
 
+> Le code ne ment pas
+
+:+1: 
+:sparkles: 
+:camel: 
+:tada: 
+:rocket: 
+:metal: 
+:octocat:
+
 <!--
 **Pierrooooo/Pierrooooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
