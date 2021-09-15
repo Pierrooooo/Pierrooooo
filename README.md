@@ -1,15 +1,21 @@
-### Hi there 👋
+# Hello there 👋
+## General Kenobi 
 
-> Le code ne ment pas
+> "Le code ne ment pas" by Alexis Bougy
 
-:+1: 
-:sparkles: 
-:camel: 
-:tada: 
-:rocket: 
-:metal: 
-:octocat:
+When I see *YOU* i'm like **(｡+･｀ω･´)**
 
+:biohazard: E356  :biohazard:
+
+![](http://i.imgur.com/OUkLi.gif)
+
+** ------------- **
+
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+
+** ------------- **
+
+![](name-of-giphy.gif)
 <!--
 **Pierrooooo/Pierrooooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
