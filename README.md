@@ -1,13 +1,13 @@
-# Hello there 👋
+## Hello there 👋
 
 
 ![](star-wars-general-grievous.gif)
 
-## About ME 💬 :
+# About ME 💬 :
 
 My firends call me Pierro but you can call me too night :sunglasses: :smirk:
 
-### - Hobbies : 
+## - Hobbies : 
 - ✨ Gaming Addict
 - ✨ Watching Animes/Series/Moovies
 - ✨ Sports lover
@@ -16,7 +16,7 @@ My firends call me Pierro but you can call me too night :sunglasses: :smirk:
 
 ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
-### Fun Facts :
+## Fun Facts :
 
 I'm officially 1.41m tall
 
