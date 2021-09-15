@@ -12,7 +12,7 @@ My firends call me Pierro but you can call me too night :sunglasses: :smirk:
 - ✨ Watching Animes/Series/Moovies
 - ✨ Sports lover
 - ✨ Gifs Lover
-- ✨ Practicing Loud Laugh
+- ✨ Practicing Loud Laugh and C
 
 ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
