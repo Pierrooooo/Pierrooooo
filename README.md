@@ -28,29 +28,14 @@ My firends call me Pierro but you can call me tonight :sunglasses: :smirk:
 
 I'm officially 1.41m tall
 
-Animals love me but i'm scared of a lot's of them 
+Animals love me but i'm scared of a lot of them 
 
 :biohazard: E356  :biohazard:
 
-I've been top 16 in Rocket League's casual game mode
-
-I participated a few years ago in the France championship of shooting with a carabine at 10meters
-
-And i m done with flexing
+This is wow i look at myself in the mirror XD
 
 ![Alt Text](flex-bdm.gif)
 
 <!--
 **Pierrooooo/Pierrooooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
